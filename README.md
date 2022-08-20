@@ -1,8 +1,6 @@
 # ANIMAX
    this nkdbkjfnlkdml;fdlkmflkmbjknkjnknjk
    
-   
-   
-#pd1
+# pd1
    
    nbdkjgnjenrjngkle,nfkjnknrkjgnkjnmq3qkn
